@@ -1,4 +1,4 @@
-# dpizer-tube-privacy
+# Dpizer Tube Big Profile Photo Privacy and Policy
 
 
 Privacy Policy
